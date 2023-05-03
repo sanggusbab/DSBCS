@@ -1,4 +1,4 @@
-All contents made from Dskyb are coopyright of Dskyb, Copyright © HandS. All rights reserved.
+All contents made from the team Dskyb are coopyright of Dskyb, Copyright © Dskyb. All rights reserved.
 
 Any redistribution or reproduction of part or all of the contents in any form is prohibited other than the following:
   You may print or download to a local disk extracts for your personal and non-commercial use only.
